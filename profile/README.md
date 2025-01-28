@@ -40,13 +40,13 @@ At DinestX, our primary goal is to empower businesses by providing them with the
 
 We’d love to hear from you! Whether you have a project in mind or just want to learn more about our services, feel free to reach out.
 
-- **Email**: [info@dinestx.com](mailto:info@dinestx.com)
-- **Phone**: +1 (123) 456-7890
+- **Email**: [dinestx@gmail.com](mailto:dinestx@gmail.com)
+- **Phone**: +91 8409031739, +91 8936860540
 - **Website**: [www.dinestx.com](http://www.dinestx.com)
 - **Social Media**: 
   - [Facebook](https://www.facebook.com/dinestx)
   - [Twitter](https://twitter.com/dinestx)
-  - [Instagram](https://www.instagram.com/dinestx)
+  - [Instagram](https://www.instagram.com/di.nestx/)
   - [LinkedIn](https://www.linkedin.com/company/dinestx)
 
 ## Join Us
